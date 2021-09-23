@@ -1,0 +1,16 @@
+Puzzle Heist Epic Action RPG hack apk [100k gems]
+=================================================
+
+
+
+HACK HERE >>>>>> https://giftcrow.com/puzzle-heist
+==================================================
+
+
+Puzzle Heist MOD APK is definitely an action-packed, physics-based, endless runner, hidden object game. The story behind the overall game is dependant on a puzzle in London, England, in 2009. This is actually the vault. You will see your current progress by arranging your peers on the four locks to the best of the giant metal door. In the beginning of the game.
+
+They'll all be red, but as you complete more puzzles and switch off more security, they'll gradually turn green. Once you lose all of the puzzles, you'll deactivate the laser beam, switch off these ridiculous security cameras, switch off the energy bars, and lift the gate. Your Paul Sofia can do the rest.Buttons in the bottom of the key screen will get you between puzzles. The four icons above allow you to choose a form of puzzle. If it's locked, it indicates that you might want to eliminate one other locks of the vault (the amount of padlocks indicates how additional security items you'll need to get). A tick sign suggests that you have completed it. The number of volts of electricity indicates how much energy you obtain from this puzzle once you beat it.
+
+Once you beat the puzzle, underneath bar will soon be filled up with energy. Once the blue bar hits the conclusion of the gauge, you will switch off other security equipment and unlock more puzzles. Try this four times, and you will soon be rewarded.Again and again, a woman named Sofia provides you with a bell to share with you how you're doing. You can always have a reasonable conversation to keep it closed. There isn't to solve every puzzle to unlock the hidden treasure. Just fill in the four energy bars, and switch off the security, and you'll get your reward. This means you can concentrate on the puzzles of your decision or miss the puzzles which are providing you the biggest headaches.
+
+Puzzle Heist Epic ActionHack Android App,Puzzle Heist Epic ActionHack Android No Root,Puzzle Heist Epic ActionHack Android No Download,Puzzle Heist Epic ActionHack Android Pin,Puzzle Heist Epic ActionHack Android No Survey,Puzzle Heist Epic ActionHack Apk,Puzzle Heist Epic ActionHack Activation Key,Puzzle Heist Epic ActionHack App,Puzzle Heist Epic ActionHack Android Download,Puzzle Heist Epic ActionHack Apk Download,Puzzle Heist Epic ActionHack Activation Code,Puzzle Heist Epic ActionHack And Cheats,Puzzle Heist Epic ActionHack Cydia,Puzzle Heist Epic ActionHack Cydia Free,Puzzle Heist Epic ActionHack Cydia Xsellize,Puzzle Heist Epic ActionHack Cydia June 2017,Puzzle Heist Epic ActionHack Cydia Android,Puzzle Heist Epic ActionHack Cydia June,Puzzle Heist Epic ActionHack Cydia July 2017,Puzzle Heist Epic ActionHack Cydia Ifile,Puzzle Heist Epic ActionHack Cydia Source,Puzzle Heist Epic ActionHack Cydia 2017,Puzzle Heist Epic ActionHack Code,Puzzle Heist Epic ActionHack Cheat Tool,Puzzle Heist Epic ActionHack Cheat,Puzzle Heist Epic ActionHack Cydia Ios 7,Puzzle Heist Epic ActionHack Cydia Source 2017,Puzzle Heist Epic ActionHack Cheat Engine,Puzzle Heist Epic ActionHack Download,Puzzle Heist Epic ActionHack Download Mac No Survey,
